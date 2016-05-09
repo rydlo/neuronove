@@ -1,1 +1,1 @@
-# neuronove
+# chod srat ty debil
